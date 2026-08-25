@@ -15,7 +15,7 @@
     
 
 
-‎ ‎ ${\textsf{\color{#D2B48C} 𝓢HADE}}$‎ ‎ ${\textsf{\color{#008B8B} 𝓐L}}$
+‎ ‎ ${\textsf{\color{#D2B48C} 𝓗YORA}}$‎ ‎ ${\textsf{\color{#008B8B} 𝓘NFP}}$
      <br>
      ‎ indonesian . takenㅤ 𝓑isex̲u̲a̲l̲ ‎ ‎ 
      <br>
@@ -41,6 +41,7 @@ HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT
     <td>
       <details>
 <summary>ma DO 𝓝OT 𝓘NT𝐄RA𝐂T ♡ </summary>
+           <br>
 HONESTLY I'M LAZY TO MOVE IT HERE<br>
 JUST GO TO MY STRAWBERRY PAGE <br>
 ON MY  MAIN ACC AND #1 RENTRY<br>
