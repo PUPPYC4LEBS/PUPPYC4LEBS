@@ -39,3 +39,38 @@
 </p>
 
 <br>
+𝗐ℎ𝖾𝗋𝖾 ?　﹕　im usually at the 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 <b>mo</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺, roaming around, or sitting with my friends
+
+𔓖︥　　﴾　𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃p
+
+⍺𝗇𝗒 ρ𝗋𝗈𝗇𝗈υ𝗇𝗌　ׁ　𝕲.　5𝗍ⲉ𝖾𝗇
+
+
+</td>
+
+<td width="50%" align="center" style="border: none; padding: 0;">
+
+<img src="https://i.postimg.cc/m2LsqChn/8586383c-d012-4c8b-93c3-94dd93f4925d-removebg-preview.png" width="350">
+
+</td>
+
+</tr>
+</table>
+
+
+</div>
+
+<br>
+
+---
+
+<br>
+
+<table border="0" align="center" style="border: none; border-collapse: collapse; margin: auto;">
+<tr style="border: none;">
+
+<td width="50%" align="center" style="border: none; padding: 0;">
+
+<img src="https://i.postimg.cc/SNfFqrnb/Ceylon-padparadscha-diamond-sapphire-ring-e1532724418819-removebg-preview(1).png" width="350">
+
+</td>
