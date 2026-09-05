@@ -74,3 +74,27 @@
 <img src="https://i.postimg.cc/SNfFqrnb/Ceylon-padparadscha-diamond-sapphire-ring-e1532724418819-removebg-preview(1).png" width="350">
 
 </td>
+
+<td width="50%" align="center" style="border: none; padding: 0;">
+
+
+
+<br>
+
+﹕　i am not a first initiator—<small><i>cuds/talk/etc</i></small>—unless youre one of my friends, but feel free to interact 𑣲 im offtab most of the time, so slide into my whispers to notify me
+
+𝖼 ⸱ 𝗁 is always encouraged! seriously, i dont bite , , , come come
+
+this goes without saying, but please do <i>not</i> copy my skins. be original, but feel free to ask for inspo
+
+</td>
+
+</tr>
+</table>
+<br>
+
+<div align="center">
+
+[![straw](https://img.shields.io/badge/straw-fff5ef?style=for-the-badge&logo=apachespark&logoColor=e99a78&labelColor=fad0bd)](https://vojager.straw.page/) [![carrd](https://img.shields.io/badge/carrd-fff5ef?style=for-the-badge&logo=googlegemini&logoColor=df7958&labelColor=f2b39b)](https://brunocciarati.carrd.co/) [![atabook](https://img.shields.io/badge/atabook-fff5ef?style=for-the-badge&logo=minio&logoColor=df7958&labelColor=f2b39b)](https://mortenax.atabook.org/)
+
+</div>
