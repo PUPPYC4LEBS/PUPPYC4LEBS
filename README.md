@@ -81,7 +81,11 @@
 
 <br>
 
-ઇ  　　 ݂ ֹ　i αɱ 𝓷ot a f𝙞rst iniƚiator—<small><i>cuԃs/tαlk/ҽtc</i></small>—u𝐧less youre one of my friends ۟ ׅ             ͡ I'm afraid oof interact,,,  　　sorry!   :(( im offtab most of the time.. more 　　 notes BYI on  　　my main! 
+ઇ  　　 ݂ ֹ　i αɱ 𝓷ot a  　　f𝙞rst iniƚiator 　　<small><i>cuԃs/tαlk/ҽtc</i></small>　　u𝐧less youre one of my friends ۟ ׅ   
+
+͡ I'm afraid of interact,,,  　　sorry if I'm awkward!   :((
+
+—  　　im offtab most of the time.. more 　　 notes BYI on  　　my main! 
 
 　 ࣪　⊹　  　　𝖼 ⸱ 𝗁 is  　　always encouraged! 
 
