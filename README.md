@@ -32,13 +32,13 @@
 <td width="50%" align="center" style="border: none; padding: 0;">
 
 <p align="center">
-  <img src="https://i.postimg.cc/28fKbWbG/7664c069-9994-4bc7-926f-4b23462f73be-removebg-preview.png" width="22">
-  <b>ℓ𝖾ⲓ𝗇</b>　࣪　
-  <span style="color:#EFA18F;"><b>k𝖾𝖎</b></span>　♰　𝟢1
+  <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/48033864-e39a-4e4a-97b6-af963599387b" />
+  <b                                    ><b>yo𝗿α　ₒᵣ</b>　࣪　
+  <span style="color:#EFA18F;"><b>𝐜𝐡yriess</b></span>　𓍢　　𓂅　𝐈ηfρ
 </p>
 
 <br>
-𝗐ℎ𝖾𝗋𝖾 ?　﹕　im usually at the 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 <b>mo</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺, roaming around, or sitting with my friends
+𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　　೨౿  aɾo𝘂𝗻d t<b></b>o</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺, roaming around, or sitting with my friends
 
 𔓖︥　　﴾　𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃p
 
