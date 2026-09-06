@@ -18,11 +18,10 @@
 <br>
 <html>
  <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=EFA18F&center=true&vCenter=true&width=700&lines=oh,+thunder+only+happens+when+its+rainin';players+only+love+you+when+theyre+playin';say+women,+they+will+come+and+they+will+go;when+the+rain+washes+you+clean,+you'll+know.;you'll+know." />
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=DM+Sans&size=15&duration=3000&pause=300&color=FF0000&center=true&width=435&lines=Cause..+;I'm+in+a+field+of+Dandelions;Wishing+on+every+one+that+you'd+be+mine;Mine..+;...+;And+i+see+forever+in+your+eyes;I+feel+okay+when+i+see+you+smile...+;Smile..+;Wishing+on+dandelions+all+of+the+time;Praying+to+God+that+one+day+you'll+be+mine;Wishing+on+dandelions+all+of+the+time;All+of+the+time..+" alt="Typing SVG" /></a>
 </p>
- <p align="center"> 
-  <img src="https://i.postimg.cc/gJ0LMfVq/tumblr-7ca9a1837c43e5543b01725107130905-8f9f3cd6-2048.png width="150"">
-
+ 
+  
 
 
 
