@@ -50,7 +50,8 @@
 
 <td width="50%" align="center" style="border: none; padding: 0;">
 
-<img src="https://i.postimg.cc/m2LsqChn/8586383c-d012-4c8b-93c3-94dd93f4925d-removebg-preview.png" width="350">
+<img width="1189" height="1189" alt="Image" src="https://github.com/user-attachments/assets/2498f1f5-854a-4f9c-ab3b-01b9c99050c9" />
+
 
 </td>
 
@@ -71,7 +72,8 @@
 
 <td width="50%" align="center" style="border: none; padding: 0;">
 
-<img src="https://i.postimg.cc/SNfFqrnb/Ceylon-padparadscha-diamond-sapphire-ring-e1532724418819-removebg-preview(1).png" width="350">
+<img width="1189" height="1189" alt="Image" src="https://github.com/user-attachments/assets/ce8ce6e2-fef0-4431-b956-12b6b9ed97b6" />
+
 
 </td>
 
