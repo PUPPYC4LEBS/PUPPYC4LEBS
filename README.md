@@ -38,11 +38,10 @@
 </p>
 
 <br>
-𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　　೨౿  aɾo𝘂𝗻d t<b></b>o</b>ⲟ𝗇 ／ 𝗁𝗈ɥ𝗈<i>𝗏𝖾𝗋𝗌𝖾</i> ⍺𝗋𝖾⍺, roaming around, or sitting with my friends
+𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　　೨౿  aɾo𝘂𝗻d   ˚        ݂ ֹ   𝐠𝐢𝐟𝐭        ѕтαѕн         !       𝗢𝗡      ۟ ׅ         ID ／ SAFE   ͡
+         _ _ㅤ۪　 　　 　❜ 　(          )　　 ࣪࣪　⊹ 　　 　　𓂅 　　　𔓖︥　　
 
-𔓖︥　　﴾　𝖾𝗇𝗀 ／ 𝖿i𝗅 ／ 𝗃p
-
-⍺𝗇𝗒 ρ𝗋𝗈𝗇𝗈υ𝗇𝗌　ׁ　𝕲.　5𝗍ⲉ𝖾𝗇
+  ݄݄݄݄݄݄݄݄𝓢he ៸ 𝓗er ﾞﾞ 　　ׁ 　　　𝕲.　7tⲉ𝖾𝗇
 
 
 </td>
