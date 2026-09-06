@@ -97,6 +97,12 @@ this goes without saying, but please do <i>not</i> copy my skins. be original, b
 
 <div align="center">
 
-[![straw](https://img.shields.io/badge/straw-fff5ef?style=for-the-badge&logo=apachespark&logoColor=e99a78&labelColor=fad0bd)](https://vojager.straw.page/) [![carrd](https://img.shields.io/badge/carrd-fff5ef?style=for-the-badge&logo=googlegemini&logoColor=df7958&labelColor=f2b39b)](https://brunocciarati.carrd.co/) [![atabook](https://img.shields.io/badge/atabook-fff5ef?style=for-the-badge&logo=minio&logoColor=df7958&labelColor=f2b39b)](https://mortenax.atabook.org/)
+<a href="https://github.com/dollachyreiss">
+  <img width="130" height="50" alt="Image" src="https://github.com/user-attachments/assets/c833ceaf-bec8-4ba3-a6e3-14945f5d8cca" />
+</a>
+ㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://c4nibaydoll.atabook.org/">
+  <img width="110" height="40" alt="Image" src="https://github.com/user-attachments/assets/1cd13eb6-caf5-4ccf-9e99-1cb0545e8de8" />
+</a>
 
 </div>
