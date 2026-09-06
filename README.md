@@ -81,11 +81,11 @@
 
 <br>
 
-﹕　i am not a first initiator—<small><i>cuds/talk/etc</i></small>—unless youre one of my friends, but feel free to interact 𑣲 im offtab most of the time, so slide into my whispers to notify me
+ઇ  　　 ݂ ֹ　i αɱ 𝓷ot a f𝙞rst iniƚiator—<small><i>cuԃs/tαlk/ҽtc</i></small>—u𝐧less youre one of my friends ۟ ׅ             ͡ I'm afraid oof interact,,,  　　sorry!   :(( im offtab most of the time.. more 　　 notes BYI on  　　my main! 
 
-𝖼 ⸱ 𝗁 is always encouraged! seriously, i dont bite , , , come come
+　 ࣪　⊹　  　　𝖼 ⸱ 𝗁 is  　　always encouraged! 
 
-this goes without saying, but please do <i>not</i> copy my skins. be original, but feel free to ask for inspo
+𝐃ni LIST  .　　is at 　　 my <small><i>STRAWPAGE</i>
 
 </td>
 
