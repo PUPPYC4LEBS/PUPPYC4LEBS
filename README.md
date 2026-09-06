@@ -39,9 +39,9 @@
 
 <br>
 𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　  aɾo𝘂𝗻d   ˚        ݂ ֹ  　　  𝐠𝐢ft  　　 ѕтαѕн 　　 !       ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 　　　  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ I𝗡   ۟        <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/12be3cb8-9273-4be9-a658-0f6d47bf1ad9" />　   　　 ID ／ SAFE  　　  ͡͡ 　　 　　
-         _ SERVERS 　　_ 　　ㅤ۪　 　　 　❜ 　(       <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/39ed05c3-d4e4-4781-a66e-3c6845b0e36f" />  　　 ࣪࣪　 　　 　go to　 　　⊹ 　　  　　main　　𓂅 　　 　　　  )　　𔓖︥　　
+         _ SERVERS 　　_ 　❜ 　(       <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/39ed05c3-d4e4-4781-a66e-3c6845b0e36f" />  　　 ࣪࣪　 　　 　go to　 　　⊹ 　　  　　main　　𓂅 　　 　　　  )　　𔓖︥　　
 
-  ݄݄݄݄݄݄݄݄𝓢he ៸ 𝓗er ﾞﾞ 　　ׁ 　　　𝕲.　7tⲉ𝖾𝗇
+  ݄݄݄݄݄݄݄݄𝓢he ៸ 𝓗er ﾞﾞ 　　ׁ 　　　𝕲.　7tⲉ𝖾𝗇　　ㅤ۪　 　　 
 
 
 </td>
