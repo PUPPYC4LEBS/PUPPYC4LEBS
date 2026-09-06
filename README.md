@@ -74,7 +74,8 @@
 
 ͡ I'm afraid of interact,,,  　　sorry if I'm awkward!   :((
 
-—  　　im offtab most of the time.. more 　　 notes BYI on  　　my main! 
+—  　　im offtab most of the time.. more 　　 notes BYI on  　　my main! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c6fa29ce-9dd2-4735-b227-a8e03782b295" />
+
 
 　 ࣪　⊹　  　　𝖼 ⸱ 𝗁 is  　　always encouraged! 
 
